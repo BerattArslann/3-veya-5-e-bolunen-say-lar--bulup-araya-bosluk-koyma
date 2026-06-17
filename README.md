@@ -1,0 +1,1 @@
+# 3-veya-5-e-bolunen-say-lar--bulup-araya-bosluk-koyma
